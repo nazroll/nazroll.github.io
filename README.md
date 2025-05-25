@@ -1,4 +1,4 @@
-# Cloud architect. Open Source enthusiast. Rollerblader. #
+# Cloud architect. Open Source enthusiast. Rollerblader.
 
 **Engineering Manager & cloud architect by day. Open-source enthusiast by night. Storyteller on wheels all the time.**
 
