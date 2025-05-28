@@ -1,6 +1,6 @@
 ## Cloud architect. Open Source enthusiast. Rollerblader.
 
-**_Engineering Manager & cloud architect by day. Open-source enthusiast by night. Storyteller on wheels all the time._**
+**_Engineering manager & Cloud architect by day. Open-source enthusiast by night. Storyteller on wheels all the time._**
 
 I’m Nazrul 👋 
 
