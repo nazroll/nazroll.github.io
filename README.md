@@ -8,4 +8,4 @@ The story of my life: leading engineering teams build secure, governance-first c
 
 Rollerblading taught me that every fall is a chance to learn, and the best tricks come from staying curious, honest, and a little daring.
 
-Kindness, humility and moderation is punk rock.
+Kindness and humility is punk rock.
